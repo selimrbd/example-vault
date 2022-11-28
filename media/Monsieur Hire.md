@@ -1,0 +1,37 @@
+---
+original-link: https://www.rogerebert.com/reviews/Monsieur-Hire
+director: Patrice Leconte
+date-reviewed: 2011-12-21
+score: 4
+tags: type/movie
+---
+
+![](https://s3.amazonaws.com/static.rogerebert.com/uploads/review/primary_image/reviews/Monsieur-Hire/EB20121221REVIEWS08121229998AR.jpg)
+
+# notes
+
+[Patrice Leconte](https://www.rogerebert.com/cast-and-crew/patrice-leconte)'s "Monsieur Hire" is a tragedy about loneliness and erotomania, told about two solitary people who have nothing else in common. It involves a murder, and the opening shot is of a corpse. Monsieur Hire is a scrawny, balding middle-aged tailor who lives by himself. Alice is a beautiful, tender-hearted 22-year-old blonde who lives alone across the courtyard from Hire in the same apartment building.
+
+On the night of the murder, a slight man was seen by witnesses running toward the building. In his investigation among its residents, a police detective learns that nobody likes Hire. Hire is the first to agree. He admits he seems to strike people oddly. As a neighbor from across the hall peeks at him from his doorway, he asks, "Want a photo?" As he walks through his courtyard, white powder is dumped on his impeccable black suit.  
+
+Everything about Hire ([Michel Blanc](https://www.rogerebert.com/cast-and-crew/michel-blanc)) is impeccable; his suit, his tie, the shine on his shoes, the fringe of his hair so neatly trimmed. Alice ([Sandrine Bonnaire](https://www.rogerebert.com/cast-and-crew/sandrine-bonnaire)) is sunny, open-faced, with a warm smile. One night during a thunderstorm a flash of lightning reveals a man watching her from the shadows of the apartment opposite. This is Hire, who watches her for hour after hour, night after night: Sleeping, waking up, dressing, undressing, ironing her clothes, making love with her lout of a boyfriend, Emile ([Luc Thuillier](https://www.rogerebert.com/cast-and-crew/luc-thuillier)).  
+
+What does she do when she discovers this? The screenplay is based on _Monsieur Hire's Engagement_ by [Georges Simenon](https://www.rogerebert.com/cast-and-crew/georges-simenon), but it's nothing like his Inspector Maigret _policiers_, much more of a traditional novel with carefully-observed behavior and details. Simenon was fascinated by peculiarities of human personality, which he described in elegant, simple prose, not unlike Leconte's controlled visual style here.
+
+The film is in color, but Hire's world is black and white: His suits, shirts, the white mice he keeps in little cage in his tailor shop. His skin is so pale he might never go outside in daytime. Alice, on the other hand, likes red: Her clothing, her lipstick, the grocery big of ripe tomatoes she "drops" on a staircase so they roll toward Hire as he opens his door. Does he leap to assist her? No, he simply stands and regards her. What is the purpose of her contrivance?  
+
+Another day, she knocks on his door, but he doesn't answer. He must know it's her, because he never has visitors and he must realize she's just left her own apartment. She knocks the next day, and he invites her to visit a restaurant—in a train station, which may be a clue to certain of his thoughts. Eventually he confirms that, yes, he has seen her and her boyfriend making love. And he witnessed something else that he believes explains her sudden and unexpected friendliness toward him.
+
+So it may, at first. But Alice's feelings for him grow more complicated, and she is touched by his declaration of love. Her boyfriend Emile, on the other hand, is a crude physical type whose idea of a perfect date is taking her to a boxing match and ignoring her. Later, when he needs to sneak out of a window quickly, he steps first in a cradle formed by her hands, and then on her shoulders. Hire shares his secrets with Alice. He makes considerable use of prostitutes, he tells her, and as he describes the process of a bordello her face reflects fascination, perhaps that a man like Hire could have such erotic experiences and describe them so sensuously. But he can never visit a prostitute again, he explains, because he has fallen in love with her.
+
+Hire is a man with many secrets. One night in the course of the police inspector's investigation, he takes him along to a bowling alley, where he rolls strike after strike flawlessly, even backwards between his legs, even blindfolded, and is applauded by the regulars who have seen this before. He collects a payment from the owner, joins the cop at the bar, tosses back a shot and says, "You see? I'm not disliked everywhere."
+
+What's going on between Hire and Alice? For that matter, what are her feelings for the boyfriend, Emile? That relationship seems pretty standard for a film noir; he seems to be a witless small-time criminal, and only her loyalty can save him. Her devotion to him is pointless and undeserved, as far as we can see, and although sex figures between them, she's too complex for that to explain everything. She's never met a man whose love for her is more profound and devoted (and obsessive) than Hire's. Emile wouldn't even be able to understand it.
+
+At the center of this film is great sadness, captured in a late fast-motion shot that slows for an instant to show a detail lingered on in heartbreaking slow motion. Then the ending wraps everything up, but not to everyone's satisfaction.
+
+Patrice Leconte, born 1947, is one of the most versatile of French directors. He switches styles and genres from film to film, and you may be a fan of his without realizing it. "Monsieur Hire" (1989) was his first considerable success, premiered at Cannes, which is where I saw it. He also made "[Ridicule](https://www.rogerebert.com/reviews/ridicule-1996)" (1996), about a provincial landowner during the reign of Louis XVI, who seeks to win the favor of the court by practicing the quick wit much loved by the king; "[The Widow of Saint-Pierre](https://www.rogerebert.com/reviews/the-widow-of-st-pierre-2001)" (2000), about a condemned killer awaiting death on a French-Canadian island until an executioner can be imported from Paris; "Man on the Train (2002)" with [Jean Rochefort](https://www.rogerebert.com/cast-and-crew/jean-rochefort)and [Johnny Hallyday](https://www.rogerebert.com/cast-and-crew/johnny-hallyday) as a suave provincial gentleman's chance encounter with a thief; and another of my Great Movies, "[The Hairdresser's Husband](https://www.rogerebert.com/reviews/the-hairdressers-husband-1990)" (1990), again starring Rochefort as a man so enraptured by a small town hairdresser that he marries her, buys her a beauty parlor, and requires only that he be allowed to sit in it, day after day, adoring her.  
+
+"I don't think that a filmmaker is manipulating puppets," Leconte told me at the 2002 Toronto Film Festival. "On the contrary, I believe a filmmaker is more like a chemist. You mix elements that have nothing to do with each other and you see what will happen. The starting point for 'The Man on the Train' was the meeting of the two actors. Put in a few drops of Johnny Hallyday, a few drops of Jean Rochefort and look what happens. Sometimes it blows up in your face."
+
+I asked him an obligatory question about the French New Wave and he said, "Well, I didn't know Truffaut at all. I never met him, because he died too early probably. One of the things that I loved most about Truffaut was that he loved movies. And I would like that on my tomb: _This man loved to make movies._ "
